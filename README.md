@@ -1,0 +1,2 @@
+# ahmad
+script ala hacker
